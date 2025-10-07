@@ -1,0 +1,1 @@
+To będzie strona GM kontraktu.
